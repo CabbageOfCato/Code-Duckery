@@ -1,2 +1,2 @@
-# Code-Fuckery
+# Code-Duckery
 I'm not sorry
